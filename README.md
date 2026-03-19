@@ -6,7 +6,7 @@ I focus on driving growth for enterprise IT solutions and building strong partne
 - ☁️ **Focus Areas:** Cloud Service Provider programs, Virtualization, and Open Source technologies.
 - 📈 **Goal:** Onboarding and enabling partners to scale their cloud business.
 - ⚡ **Current Project:** Expanding regional reach for Managed Service Provider (MSP) models.
-- 📫 **How to reach me:** [Link to your LinkedIn profile]
+- 📫 **How to reach me:** www.linkedin.com/in/vitthal-bhavsar-551b1a13
 
 ---
 *"Driving digital transformation through strategic partnerships."*# Kapilb-
