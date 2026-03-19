@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm Vitthal 👋
 
 ### 💼 Business Manager | Cloud & Managed Services Specialist
 I focus on driving growth for enterprise IT solutions and building strong partner ecosystems.
